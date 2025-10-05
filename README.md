@@ -37,7 +37,7 @@ How to reach me:
 - Twitter:https://x.com/MirakleGroup
 - Facebook:https://www.facebook.com/profile.php?id=61557787735701
 - YouTube:https://youtube.com/@miraklegroup
-- MirakleAi:https://www.instagram.com/mirakleai?igsh=MXB2bjFobmdxcXBkOA==
+- AvariAI: https://www.instagram.com/avariai_1?igsh=MXB2bjFobmdxcXBkOA==
 - Tiktok:https://vm.tiktok.com/ZMkYHF9uc/
 
 Pronouns: They/Them
